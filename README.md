@@ -1,4 +1,4 @@
-# 👋 Hi, I'm Aymen Karkouri Idrissi
+# 👋 Hi, I'm KARKOURI IDRISSI AYMEN
 
 ## 🛡️ Cybersecurity Engineering Student | Network Security Enthusiast
 
